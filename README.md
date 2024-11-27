@@ -1,0 +1,1 @@
+# Planilha-Inteligente-para-Organizar-vida-Financeira-com-IA
